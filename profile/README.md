@@ -12,7 +12,7 @@ Website: https://hazels.garden.
 
 ---
 
-Hazel's Garden LLC, 2026©
+Hazel's Garden LLC, All Rights Reserved, 2026©
 
 <!--
 
