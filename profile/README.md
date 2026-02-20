@@ -1,10 +1,16 @@
-Hazel's Garden LLC, Created and Founded by Hazeline Nishad 😌💖
+Hazel's Garden LLC, Created and founded by Hazeline Nishad. 😌💖
+
 Incorporated in Albuquerque, New Mexico, on 12th February, 2026.
 
 Business Address: 1209 Mountain Road Pl Ne, Ste N, Albuquerque, NM, 87110
-For any inquiries, please email hazel@hazels.garden
 
-Website: https://hazels.garden
+---
+
+For any inquiries, please email hazel@hazels.garden.
+
+Website: https://hazels.garden.
+
+---
 
 Hazel's Garden LLC, 2026©
 
